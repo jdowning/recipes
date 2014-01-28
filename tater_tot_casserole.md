@@ -8,7 +8,7 @@
     1		32 oz package tater tots 
     1		10 oz can cream of mushroom soup
     1		8 oz container sour cream
-    1		milk
+    1		cup milk
     2		cups grated cheddar cheese
             pepper, to taste
             season salt, to taste
