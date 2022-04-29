@@ -4,7 +4,7 @@
 **Cook time**: 18 or 28 minutes  
 
     3		ripened bananas
-    1		cup mayonaise
+    3		cup mayonaise
     3/4		cup sugar
     1   	cup all-purpose flour
     1   	cup whole wheat flour
